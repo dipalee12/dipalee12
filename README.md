@@ -1,4 +1,4 @@
-### Hi there   I  am  DIPALI👋
+<h1 align="center">Hi there ....  I  am  DIPALI👋</h1>
 
 
 
